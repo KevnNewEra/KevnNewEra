@@ -1,7 +1,4 @@
 # 💫 About Me:
-Tenho 16 anos e sou um estudande de tecnologia em constante evolução. Atualmente, estou focado em estudar e me aprofundar na área de programação.<br><br>Minha mentalidade é de aprendizado contínuo: estou disposto a aprender de qualquer forma, seja enfrentando novos desafios ou colaborando em projetos. 🚀<br><br>📫 Se quiser perguntar algo ou trocar uma ideia, me mande um e-mail:<br><br>E-mail: kevynaraujocomercial@gmail.com<br><br>
-
-___________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
 👋 Hi, I'm Kevyn! I'm 16 years old and a technology student constantly evolving. Currently, I'm focusing my studies on the programming field.<br><br>I have a growth mindset: I'm willing to learn in any way possible, whether through new challenges or collaborating on projects. 🚀<br><br>📫 If you want to ask me anything or just chat about tech, feel free to send me an email:<br><br>Email: kevynaraujocomercial@gmail.com
 
